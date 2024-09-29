@@ -1,0 +1,1 @@
+kendine özeleştir lord
